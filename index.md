@@ -9,3 +9,4 @@ A student in Harry's year described as "pink-faced" with blonde hair worn in pig
 * loves to speak in public
 * loves to play mean characters
 
+> Let us step into the night and pursue that flighty temptress, adventure.
