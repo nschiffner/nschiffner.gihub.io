@@ -10,3 +10,5 @@ A student in Harry's year described as "pink-faced" with blonde hair worn in pig
 * loves to play mean characters
 
 > Let us step into the night and pursue that flighty temptress, adventure.
+
+<img src="https://www.publicdomainpictures.net/pictures/320000/velka/klee-blute-wildblume-pflanze-15771911986x9.jpg"/>. 
