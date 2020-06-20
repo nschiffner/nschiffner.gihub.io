@@ -11,6 +11,4 @@ A student in Harry's year described as "pink-faced" with blonde hair worn in pig
 
 > Let us step into the night and pursue that flighty temptress, adventure.
 
-![Hannah Abbott](https://www.publicdomainpictures.net/pictures/320000/velka/klee-blute-wildblume-pflanze-15771911986x9.jpg)
-
-
+<img src="https://www.publicdomainpictures.net/pictures/320000/velka/klee-blute-wildblume-pflanze-15771911986x9.jpg"/>. 
